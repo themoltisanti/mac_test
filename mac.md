@@ -1,0 +1,1 @@
+testiks lab8 vrode ya hzs
